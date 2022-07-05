@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LWSialia
+- 👀 I’m interested in lots of things!
+- 📫 You can reach my by email at lw.sialia@gmail.com or on Discord at Sialia#6553
